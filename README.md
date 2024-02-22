@@ -7,4 +7,4 @@ WebMo's teams enjoy creating, contributing, and getting feedback. So please help
 
 
 
-<p style="font-size: 12px;">~Have a great day~<p>
+<p style="font-size: 12px;">~Have A Great Day~<p>
